@@ -25,7 +25,7 @@ I'm Priyanshi, a versatile software developer with a passion for creating elegan
 
 - 🌐 Explore my work and services on https://preview.themeforest.net/item/niwax-web-design-digital-marketing-agency-html-template/full_screen_preview/27112946.
 - 📱 Connect with me on [LinkedIn]((https://www.linkedin.com/in/priyaanshayy)) and [Twitter](https://twitter.com/priyaanshay).
-- 📧 Drop me an email at Priyanshayyy@gmail.com.
+- 📧 Drop me an email at priyanshigupta1706@gmail.com
 
 ## 🚀 Passionate About
 
